@@ -1,4 +1,4 @@
-
+smart hypershot Script offers the most advanced hypershot Script, with one-hit kill and auto-sell. Perfect for dominating any match.
 
 
 
